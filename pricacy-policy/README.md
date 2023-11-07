@@ -1,0 +1,3 @@
+# パロット
+
+THIS IS THE PRIVACY POLICY
